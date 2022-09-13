@@ -14,9 +14,12 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact:
 -->
+I'm a bygone programmer. At one point, I had been one of the best student and employee.
 
-- I'm a bygone programmer. At one point, I had been one of the best student and employee.
-- Life fucked me and I suffer from depression with a side effect of anterograde amnesia.
-- 11 years I've been in a trance and now I am trying to regain my life. Whoopee! 🥳
-- Funny thing is I don't have any idea how because I feel like a neophyte. 
-- Whatever, let's take the bull by the horns! 👊🏻
+Life fucked me and I suffer from depression with a side effect of anterograde amnesia.
+
+11 years I've been in a trance and now I am trying to regain my life. Whoopee! 🥳
+
+Funny thing is I don't have any idea how because I feel like a neophyte. 
+
+Whatever, let's take the bull by the horns! 👊🏻
